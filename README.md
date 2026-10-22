@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @BigManMEME6
+- 👋 Hi, I’m @M3MO
 - 👀 I’m interested in :P
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ... meme6 on discord @MEME6ANIMATION on twitter
+- 📫 How to reach me ... .m3mo. on discord @M3M_O_ on twitter
 - 
 
 <!---
